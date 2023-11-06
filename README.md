@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 ## Contact Me:  
-  * (Outlook) lukevin218@outlook.com
+  * (Outlook) liulu2428259365@outlook.com, shigure371481@gmail.com
   * (QQ) 2428259365
   * (Minecraft) ouch!😜
 
